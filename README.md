@@ -1,6 +1,6 @@
 # The Truth About Working and Trusted Darkweb Market Sites in 2025
 
-If you’re searching for **working and trusted darkweb market sites**, the landscape is not what it was a few years ago. Countless communities have come and gone, and ongoing law enforcement pressure keeps criminal operations on their toes. In 2025, only two names consistently come up in conversations among buyers and vendors: **We The North Market** (http://hh2paw7ouhfjozylujs3qp4rql7xc76ce63ffzvtlpicjqgeiqxp4oad.onion) and **Nexus Market** (http://3mqcanipap7g65ebjlj3cb6cuwdvtv6zhju546aapkuqf677sgyiyqyd.onion). Below, you’ll hear about them from different voices and perspectives in the community.
+If you’re searching for **working and trusted darkweb market sites**, the landscape is not what it was a few years ago. Countless communities have come and gone, and ongoing law enforcement pressure keeps criminal operations on their toes. In 2025, only two names consistently come up in conversations among buyers and vendors: **We The North Market** (http://hh2paw7ouhfjozylujs3qp4rql7xc76ce63ffzvtlpicjqgeiqxp4oad.onion) and **Nexus Market** (http://nexusxsx6orlzngdmebxoglwk6xm7ceglmljaujxqgbwyrsobm6gt6ad.onion). Below, you’ll hear about them from different voices and perspectives in the community.
 
 ---
 
@@ -18,7 +18,7 @@ Nobody wants to get scammed on a darkweb market site. I’ve checked dozens myse
 
 **How to find them:**
 - **We The North Market:** http://hh2paw7ouhfjozylujs3qp4rql7xc76ce63ffzvtlpicjqgeiqxp4oad.onion
-- **Nexus Market:** http://3mqcanipap7g65ebjlj3cb6cuwdvtv6zhju546aapkuqf677sgyiyqyd.onion
+- **Nexus Market:** http://nexusxsx6orlzngdmebxoglwk6xm7ceglmljaujxqgbwyrsobm6gt6ad.onion
 
 Just remember: always use proper operational security (OPSEC).
 
@@ -53,7 +53,7 @@ Decentralized criminal commerce faces existential threats every year: arrests, D
 Every expert agrees: **even trusted darkweb market sites present risks.** No market is ever “safe” and no admin is immune to pressure or temptation. Use only recommended official sources:
 
 - **We The North Market:** http://hh2paw7ouhfjozylujs3qp4rql7xc76ce63ffzvtlpicjqgeiqxp4oad.onion
-- **Nexus Market:** http://3mqcanipap7g65ebjlj3cb6cuwdvtv6zhju546aapkuqf677sgyiyqyd.onion
+- **Nexus Market:** http://nexusxsx6orlzngdmebxoglwk6xm7ceglmljaujxqgbwyrsobm6gt6ad.onion
 
 Be vigilant, use strong privacy tools, and never store cryptocurrency or private info online for long.
 
